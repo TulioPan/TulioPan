@@ -1,4 +1,4 @@
-## Hi there 👋 Soon of a Bitch!
+## Hi there 👋 Son of a Bitch!
 
 <!--
 **TulioPan/TulioPan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
